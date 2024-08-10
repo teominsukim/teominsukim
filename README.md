@@ -1,4 +1,4 @@
-## Hi there 
+## MIN SOO KIMMM ⚡
 [![Solved.ac
 프로필](http://mazassumnida.wtf/api/v2/generate_badge?boj=rockstarlife999)](https://solved.ac/rockstarlife999)
 <!--
